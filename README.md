@@ -1,0 +1,2 @@
+# Skrispi
+Ngerjain SKRIPSI
